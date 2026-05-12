@@ -14,7 +14,7 @@ To recap, the three steps were:
 
 ## There’s a fourth step — and we’re going to talk about it today
 
-I joked last time that step 4 is simply *Die(?)*, but as we’ve all seen,
+I half-joked last time that step 4 is simply *Die(?)*, but as we’ve all seen,
 platforms don’t announce their deaths publicly, nor do they disappear quietly
 into the night.
 
@@ -24,13 +24,12 @@ take on the whole world.
 
 ## The Pivot
 
-Look at Meta. They promised "connection", but instead gave you a rage slot machine.
-Facebook’s follower counts don't matter anymore,
-Instagram is a casino of Reels you didn’t ask for, the ad auction feels tapped
-out, and small-business accounts get banned left, right, and centre by ghost 
+Look at Meta. They promised "connection", but you don't even see your friends' posts any more.
+Facebook’s follower counts don't matter anymore, Instagram is a casino of Reels you didn’t ask for
+and small-business accounts get banned left, right, and centre by ghost 
 algorithms with no explanation. One could argue the squeeze is complete.
 
-So what did Zuck do? He didn’t fix the platforms for users or business
+Zuck knows all this and what has he done? He didn’t fix the platforms for users or business
 customers. Instead, he pivoted to the metaverse — a VR office nobody asked for.
 When that flopped, he pivoted to AI, pushing chatbots, image generators, and
 agents. And, just for good measure, he threw in some AR Ray-Ban glasses.
