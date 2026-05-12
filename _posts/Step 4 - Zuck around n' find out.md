@@ -62,19 +62,19 @@ always go up. There have to be new investors who believe in the company’s futu
 
 Thus, the Everything App. Thus, the AI pivot. Thus, the metaverse. It’s all a
 shiny new story to tell investors while the core product rots. The whole “we’re
-building the future” line is a marketing tactic, but what they’re really doing is
+building the future” line is a marketing tactic, because what they’re really doing is
 jumping ship.
 
 ## What this means for you and me
 
 I’ve watched the enshittification process play out over and over again. One
 minute a platform is a goldmine for a creator, and the next, nobody sees your
-posts anymore — because the CEO has decided the company is now “AI-first.”
+posts anymore, because the CEO has decided the company is now “AI-first.”
 The posts you made to help people end up helping an AI get trained to replace you.
 
 You can’t stop it. Enshittification only moves in one direction. Early users had a good time, 
 early advertisers got cheap clicks, and the founders and early investors got rich. 
-Now, the party is over and the whole thing is cannibalising itself looking for one more hit of
+But now that party is over and the whole thing is cannibalising itself looking for one more hit of
 growth. The step-four “everything” pivot is just a signal for the end. 
 
 That’s why I ended the last blog the way I did: **you don’t build on social
