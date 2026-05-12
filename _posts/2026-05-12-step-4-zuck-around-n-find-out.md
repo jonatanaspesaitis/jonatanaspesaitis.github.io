@@ -12,7 +12,7 @@ To recap, the three steps were:
 2. Start favouring business customers, making the platform worse for users
 3. Make the platform worse for business customers by milking them dry
 
-## There’s a fourth step — and we’re going to talk about it today
+## There’s a fourth step
 
 I half-joked last time that step 4 is simply *Die(?)*, but as we’ve all seen,
 platforms don’t announce their deaths publicly, nor do they disappear quietly
@@ -25,12 +25,12 @@ take on the whole world.
 ## The Pivot
 
 Look at Meta. They promised "connection", but you don't even see your friends' posts any more.
-Facebook’s follower counts don't matter anymore, Instagram is a casino of Reels you didn’t ask for
+Facebook’s follower counts don't matter, Instagram is a casino of Reels you didn’t ask for
 and small-business accounts get banned left, right, and centre by ghost 
 algorithms with no explanation. One could argue the squeeze is complete.
 
 Zuck knows all this and what has he done? He didn’t fix the platforms for users or business
-customers. Instead, he pivoted to the metaverse — a VR office nobody asked for.
+customers. Instead, he pivoted to the metaverse - a VR office nobody asked for.
 When that flopped, he pivoted to AI, pushing chatbots, image generators, and
 agents. And, just for good measure, he threw in some AR Ray-Ban glasses.
 Anything but actually improve the experience on the social media platforms he
@@ -42,9 +42,7 @@ subscription, your posts aren’t seen by anyone, and even when you do pay, it�
 still a lottery. Rage content runs rampant, and neuroticism is promoted so much
 that advertisers have fled the platform. So what does Elon do? He tells everyone
 he wants to turn X into an “everything app” — payments, video calls, job
-listings, dating, shopping, a WeChat for the West, and, of course, Grok AI. The guy
-openly talks about creating a new financial system on X, one you’ll never need
-to leave.
+listings, dating, shopping, "a WeChat for the West", and, of course, GrokAI. 
 
 ## Why do they do this?
 
@@ -54,25 +52,24 @@ possible for themselves and their shareholders.
 
 The enshittification playbook has run to its logical end on these platforms.
 They’ve squeezed all they can from the people who post content and the people
-who pay to reach them. There’s no juice left in the orange. But because they’re
-publicly traded companies, they can’t just say, “From now on, we’ll be a steady
-cash cow.” They have to find new ways to squeeze, because the number must
-always go up. There have to be new investors who believe in the company’s future
-— so the old investors can sell their shares to someone. That’s the game.
+who pay to reach users. There’s no juice left in the orange. But because they’re
+publicly traded companies, they can’t just say, “We're satisfied with the revenue we're getting”, because 
+the number must always go up and so they must find new new narratives to spin. 
+Because the old investors need new investors to sell their shares to. And of course the new investors will want the same and so the cycle continues. That's the game. 
 
 Thus, the Everything App. Thus, the AI pivot. Thus, the metaverse. It’s all a
 shiny new story to tell investors while the core product rots. The whole “we’re
 building the future” line is a marketing tactic, because what they’re really doing is
-jumping ship.
+jumping ship. 
 
 ## What this means for you and me
 
 I’ve watched the enshittification process play out over and over again. One
 minute a platform is a goldmine for a creator, and the next, nobody sees your
 posts anymore, because the CEO has decided the company is now “AI-first.”
-The posts you made to help people end up helping an AI get trained to replace you.
+And the previous posts you made to help people - end up helping an AI get trained to replace you.
 
-You can’t stop it. Enshittification only moves in one direction. Early users had a good time, 
+You can’t stop it. Enshittification only moves in one direction. The early users had a good time, 
 early advertisers got cheap clicks, and the founders and early investors got rich. 
 But now that party is over and the whole thing is cannibalising itself looking for one more hit of
 growth. The step-four “everything” pivot is just a signal for the end. 
