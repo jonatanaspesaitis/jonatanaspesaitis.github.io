@@ -12,6 +12,8 @@ To recap, the three steps were:
 2. Start favouring business customers, making the platform worse for users
 3. Make the platform worse for business customers by milking them dry
 
+---
+
 ## There’s a fourth step
 
 I half-joked last time that step 4 is simply *Die(?)*, but as we’ve all seen,
@@ -21,6 +23,8 @@ into the night.
 From what we can tell, after platforms have extracted as much as they can from
 both users and business customers, they try to aggressively pivot — by trying to
 take on the whole world.
+
+---
 
 ## The Pivot
 
@@ -44,6 +48,8 @@ that advertisers have fled the platform. So what does Elon do? He tells everyone
 he wants to turn X into an “everything app” — payments, video calls, job
 listings, dating, shopping, "a WeChat for the West", and, of course, GrokAI. 
 
+---
+
 ## Why do they do this?
 
 I don’t believe these people are inherently evil. I just believe — like everyone
@@ -61,6 +67,8 @@ Thus, the Everything App. Thus, the AI pivot. Thus, the metaverse. It’s all a
 shiny new story to tell investors while the core product rots. The whole “we’re
 building the future” line is a marketing tactic, because what they’re really doing is
 jumping ship. 
+
+---
 
 ## What this means for you and me
 
