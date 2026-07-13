@@ -9,7 +9,7 @@ After doing all the scientific protocols under the sun and becoming "the world's
 
 The internet was sure to make fun of him by saying things like "he'll be outlived by an alcoholic, chain-smoking Italian man"… And while I found the online rhetoric and polemics initially amusing, I stumbled upon a tweet by naval that made me think deeper:
 
-> "If the child loved the parents as much as the parents loved the child, their passing would be intolerable."
+> _"If the child loved the parents as much as the parents loved the child, their passing would be intolerable."_
 
 That's one to meditate on.
 
@@ -29,6 +29,6 @@ A lot of my worries would be eliminated if Bryan Johnson was successful. If he f
 
 My partner's mother came to visit us recently and admittedly, I was a little hesitant to see what she looked like since I've heard a lot of advice along the lines of "if you want to know what your girlfriend will turn out like - look at her mother". I really like my partner and naturally I didn't want to judge her based on what her mother looked like, but you know how it is when it comes to advice that's been imprinted in your head from a young age - it isn't exactly the easiest to get rid of. I had a call with my father about this and he told me a different piece of advice that helped me deal with the situation:
 
-> "Some age slower, some age faster, but everybody gets old eventually."
+> _"Some age slower, some age faster, but everybody gets old eventually."_
 
 On the one hand this advice can make one feel at ease about ageing, on the other hand - I hope people like Bryan Johnson succeed.
