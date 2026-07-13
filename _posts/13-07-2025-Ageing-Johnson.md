@@ -1,6 +1,6 @@
 ---
 layout: post
-title: Anti-Ageing Johnson
+title: In Defense of Bryan Johnson
 ---
 
 Bryan Johnson, a centi-millionaire who became famous for his quest to reverse ageing is no stranger to being involved in controversy, but a recent controversial post and herein the public reaction has made me pay attention:
