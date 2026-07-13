@@ -23,7 +23,7 @@ I have an American friend in Asia and recently he got hit with the news of his d
 
 My goal was to build a base in Asia so that my parents have somewhere to go if the EU falls apart but in a scenario where my dad could become ill, would I stay in Asia or would I move back to Ireland to take care of him? And what about my partner's family? If they got sick would we have to move next to them and take care of them?
 
-A lot of my worries would be eliminated if Bryan Johnson was successful. If he figured out a way to reverse ageing then my parents and your parents could stay young. And as long as they avoided accidents - I wouldn't have these worries. So isn't it a shame that he is being blasted left, right and center for even trying to solve this problem?
+A lot of my worries would be eliminated if Bryan Johnson was successful. If he figured out a way to reverse ageing then my parents and your parents could stay young and we would all be able to spend more time with each other. So isn't it a shame that he is being blasted left, right and center for even trying to solve this problem?
 
 ---
 
