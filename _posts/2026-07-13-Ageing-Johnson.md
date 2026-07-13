@@ -15,7 +15,7 @@ That's one to meditate on.
 
 ---
 
-I rarely give aging much thought, but as I approach 30 I'm starting to notice it. Not necessarily in myself, but in my parents and their parents and the parents of my peers.
+I rarely give aging much thought, but as I approach 30 I'm starting to notice it. Not necessarily in myself, but in my parents, and their parents, and the parents of my peers.
 
 With my grandparents, there's a sadness I feel seeing the wrinkles multiply on their faces, the joy for life silently leaving their bodies with every long-distance phone call we have. I don't know how many years they have left, but living in Asia while they live in Europe has made things much harder and I'm sure many others are in the same position as me.
 
