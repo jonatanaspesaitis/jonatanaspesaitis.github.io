@@ -17,7 +17,7 @@ That's one to meditate on.
 
 I rarely give aging much thought, but as I approach 30 I'm starting to notice it. Not necessarily in myself, but in my parents, and their parents, and the parents of my peers.
 
-With my grandparents, there's a sadness I feel seeing the wrinkles multiply on their faces, the joy for life silently leaving their bodies with every long-distance phone call we have. I don't know how many years they have left, but living in Asia while they live in Europe has made spending time much harder and I'm sure many others are in the same position as me.
+With my grandparents, there's a sadness I feel seeing the wrinkles multiply on their faces, the joy for life silently leaving their bodies with every long-distance phone call we have. I don't know how many years they have left, but living in Asia while they live in Europe has made spending time toghether much harder and I'm sure many others are in the same position as me.
 
 I have an American friend in Asia and recently he got hit with the news of his dad's passing which made him move back to the states. During our recent call he revealed to me that he will be staying in the US permanently to take care of his mother and stay close to his family. I ultimately think this is the right move for him, and I also wonder what will happen to me and my family?
 
