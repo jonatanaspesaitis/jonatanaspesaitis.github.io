@@ -28,7 +28,7 @@ Another described men as basically:
 
 > “Grindmaxxing for Chad’s leftovers.”
 
-There was one thread that particularly interested me. It was about Tinder potentially allowing women to filter men based on height, which I think was an attention play, but nonetheless.
+There was one thread that particularly interested me. It was about Tinder potentially allowing women to filter men based on height, which I think was an attention play by Tinder's marketing team, but nonetheless.
 
 Height comes up CONSTANTLY in these communities.
 
@@ -52,7 +52,9 @@ You see the same mentality everywhere.
 
 **A worldview can very easily become permission to do nothing.**
 
-And that’s where I think the incel ideology becomes genuinely dangerous.
+But it can also give you someone else to blame for the life you’re not living.
+
+And that’s where the incel ideology becomes genuinely dangerous. Because once you convince yourself that women aren’t simply rejecting you, but actively depriving you of something you’re entitled to, resentment can very quickly turn into the belief that they deserve to be punished.
 
 Being lonely, sexually frustrated or rejected is not unusual. Almost every man or woman experiences some version of that at some age.
 
