@@ -16,7 +16,7 @@ They’ll quote studies about how important affection and physical touch are to 
 
 They obsess over race, height, facial structure, jawlines, income and basically every characteristic imaginable. A lot of them seem obsessed specifically with “thin hot white women” - while simultaneously referring to them as “foids” and “toilets.”
 
-Which makes me ask the question: "So...Like...Do they want women or not?
+Which makes me ask the question: "So...Like...Do they want women or not?"
 
 ---
 
