@@ -4,11 +4,11 @@ So I spent about an hour going through their most popular forum.
 
 And what I found was BAD 😳
 
-Like every young guy, I had frustrations with the opposite sex growing up.
+Like every young person, I had frustrations with the opposite sex growing up.
 
-In my case, at around 18 I remember being annoyed that I was competing with 30- and 40-year-old men for the same girls.
+In my case, at around 18 I remember being annoyed that I was competing with 30- and 40-year-old men for the same chicks.
 
-I guess now it’s even worse because once you hit 12 you’re competing with American politicians 😅
+I guess now it’s even worse because once you hit 12 you’re competing with American politicians...
 
 But that’s a different story.
 
