@@ -2,7 +2,7 @@ After listening to a true-crime podcast with my partner about the [Elliot Rodger
 
 So I spent about an hour going through their most popular forum.
 
-And what I found was BAD 😳
+And what I found was BAD
 
 Like every young person, I had frustrations with the opposite sex growing up.
 
