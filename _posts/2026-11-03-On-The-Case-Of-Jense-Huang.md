@@ -9,9 +9,7 @@ Huang has since resigned and Nvidia has named its long-serving CFO, Colette Kres
 
 Many people online have criticised his departure, arguing that Jensen Huang **IS Nvidia.**
 
-And I can understand why.
-
-He co-founded the company and spent over thirty years growing it. He also helped make it one of the most valuable businesses ever.
+They state that he co-founded the company and spent over thirty years growing it. He also helped make it one of the most valuable businesses ever. And they're right.
 
 But there's something these critics seem to overlook.
 
@@ -39,7 +37,7 @@ Would you feel okay working late and rising early while your boss is out with yo
 
 And If you were a woman at Nvidia, would you think you had the same chances as someone dating the boss?
 
-Relationships involving subordinates raise legitimate questions about power, favouritism and conflicts of interest. Allegations about a suspected foreign spy raise new risks for an innovative company like Nvidia.
+Relationships involving subordinates raise legitimate questions about power, favouritism and conflicts of interest. Allegations about a suspected foreign spy raise even bigger risks for an innovative company like Nvidia.
 
 At that point, the board has to consider far more than the CEO's past achievements.
 
@@ -47,19 +45,19 @@ At that point, the board has to consider far more than the CEO's past achievemen
 
 For that reason, Huang's departure was the right move.
 
-Appointing Colette Kress as interim CEO also seems like a sensible decision. She has been Nvidia's CFO since 2013. She knows the business well and provides stability during a tough time.
+Appointing Colette Kress as interim CEO also seems like a sensible decision. She has been Nvidia's CFO since 2013. She knows the business well and will provide stability during a tough time.
 
 A strong woman leading during a scandal about alleged relationships with women, inside and outside the company, may help rebuild confidence. Her leadership could play a key role in rebuilding trust. And her experience and competence make the appointment credible.
 
 There's another consideration people seem to overlook.
 
-What message would Nvidia's board send if it ignored serious doubts about its CEO?
+What message would Nvidia's board send if it ignored serious scandals involving its CEO?
 
 What would shareholders think? What would their partners and families think?
 
 **The board's responsibility isn't to protect Jensen Huang's reputation. It's to protect Nvidia.**
 
-And so they had to make a hard decision.
+And so they had to make the hard decision.
 
 ---
 
@@ -67,4 +65,4 @@ I'm 29 and married now, and this whole situation has made me reflect on some of 
 
 I recall people pushing me to be a "fuckboy." They said not to take relationships seriously, not to be loyal, and claimed that "everyone does it."
 
-I believe that lifestyle is mostly okay when you're young and exploring. It’s fine to live like that from the start, just like Leonardo DiCaprio — no kids, no marriage, no big commitments. But the world sees it very differently when you have a family and are responsible for more than yourself.
+I believe that lifestyle is mostly okay when you're young and exploring. It’s fine to live like that openly and from the start, just like Leonardo DiCaprio — no kids, no marriage, no big commitments. But the world sees it very differently when you claim to be a family man, responsible for others'futures while running around carelessly acting with your lower head. 
