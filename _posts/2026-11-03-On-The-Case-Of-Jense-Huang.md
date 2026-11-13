@@ -22,7 +22,7 @@ Imagine you're one of those employees.
 
 You've spent years working hard. You've sacrificed evenings and taken on extra responsibilities. You've done everything possible to push the company forward while keeping its tech secrets safe.
 
-You then find out that your "leader" might be linked to someone accused of espionage. Reports have also emerged about another affair involving a senior employee. There’s also a third affair with another colleague of yours, as of now.
+You then find out that your "leader" might be linked to someone accused of espionage. Reports have also emerged about another affair involving a senior employee and then a third... as of now.
 
 How would you feel?
 
