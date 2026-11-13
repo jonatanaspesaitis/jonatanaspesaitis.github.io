@@ -22,7 +22,7 @@ Imagine you're one of those employees.
 
 You've spent years working hard. You've sacrificed evenings and taken on extra responsibilities. You've done everything possible to push the company forward while keeping its tech secrets safe.
 
-You then find out that your "leader" might be linked to someone accused of espionage. Reports have also emerged about another affair involving a senior employee and then a third... as of now.
+You then find out that your "leader" might be linked to someone accused of espionage. Reports have also emerged about another affair involving a senior employee and then a third...
 
 How would you feel?
 
@@ -30,11 +30,11 @@ Would you still trust his judgement?
 
 Would you trust that people earned promotions and opportunities on merit at Nvidia?
 
-Would you feel okay working late and rising early while your boss is out with your co-workers? You would probably wonder if personal relationships with the CEO might influence someone's career at the company...
+Would you feel okay working late and rising early while your boss is out with your co-workers? 
 
 And If you were a woman at Nvidia, would you think you had the same chances as someone dating the boss?
 
-Relationships involving subordinates raise legitimate questions about power, favouritism and conflicts of interest. Allegations about a suspected foreign spy raise even bigger risks for an innovative company like Nvidia.
+Relationships involving subordinates raise legitimate questions about power, favouritism and conflicts of interest. To add fuel to the fire, allegations about a suspected foreign spy raise even risks for an innovative company like Nvidia.
 
 At that point, the board has to consider far more than the CEO's past achievements.
 
