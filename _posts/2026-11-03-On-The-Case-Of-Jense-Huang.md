@@ -1,6 +1,3 @@
-
-# On the Case of Jensen Huang
-
 This week, news has focused on a scandal involving Nvidia's co-founder and CEO, Jensen Huang. Reports suggest he had extramarital affairs, including one with a woman thought to be a Chinese spy.
 
 The revelations have generated considerable debate, alongside the inevitable torrent of memes.
