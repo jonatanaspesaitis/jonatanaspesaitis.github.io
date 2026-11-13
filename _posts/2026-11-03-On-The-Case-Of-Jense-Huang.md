@@ -4,7 +4,7 @@ The revelations have generated considerable debate, alongside the inevitable tor
 
 Huang has since resigned and Nvidia has named its long-serving CFO, Colette Kress, as interim CEO.
 
-Many people online have criticised his departure, arguing that Jensen Huang **IS Nvidia.**
+Many people online have criticised his departure, arguing that Jensen Huang **IS** Nvidia.
 
 They state that he co-founded the company and spent over thirty years growing it. He also helped make it one of the most valuable businesses ever. And they're right.
 
